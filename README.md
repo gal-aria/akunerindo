@@ -5,7 +5,7 @@
  ![image_2024-03-27_152638178](https://github.com/akunerindo/akunerindo/assets/108711918/0e4e13cd-57f3-4eaa-a402-01b7a22820a2)
 ㅤㅤㅤㅤ ㅤㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[txto's... sigh](https://txto.eu.org/donghazs) ㅤ,, ㅤ[retrospring](https://retrospring.net@rinchan777)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[sntry](https://sntry.cc/gloryordust)ㅤ,, ㅤ[retrospring](https://retrospring.net@rinchan777)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ" is he dead ?! " oh no, no he's okay dw lol he's napping.
 <!--
