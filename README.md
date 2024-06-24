@@ -2,10 +2,11 @@
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤLook. I have plenty of tools that move on my command! " 
 
 
- ![image_2024-03-27_152638178](https://github.com/akunerindo/akunerindo/assets/108711918/0e4e13cd-57f3-4eaa-a402-01b7a22820a2)
+![image_2024-06-24_130038375](https://github.com/akunerindo/akunerindo/assets/108711918/3b7fc73b-65ff-4067-8203-bd0b80c5cb17)
 ㅤㅤㅤㅤ ㅤㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[sntry](https://sntry.cc/gloryordust)ㅤ,, ㅤ[retrospring](https://retrospring.net@rinchan777)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[patreon](https://www.patreon.com/hajunnie)ㅤ,, ㅤ[retrospring](https://retrospring.net@rinchan777)
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ" is he dead ?! " oh no, no he's okay dw lol he's napping.
 <!--
