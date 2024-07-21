@@ -3,7 +3,8 @@
 ㅤㅤ
 
 
-ㅤㅤㅤㅤㅤㅤ![blur_edges (32)](https://github.com/user-attachments/assets/ff7e9659-d6b3-4e7d-8ab0-500d49c9e7aa)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![blur_edges (32)](https://github.com/user-attachments/assets/ff7e9659-d6b3-4e7d-8ab0-500d49c9e7aa)
+
 ㅤㅤㅤㅤㅤㅤㅤ[patreon](https://www.patreon.com/hajunnie)  [retrospring](https://retrospring.net/@senaizumi)ㅤㅤㅤ
 
 ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ" If anything's crazier than that,  i'd let 'ya manipulate me all you want. "
