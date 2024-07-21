@@ -1,6 +1,7 @@
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image_2024-07-21_194813567](https://github.com/user-attachments/assets/ed761252-949a-4854-b34c-30b49908dcdb)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image_2024-07-21_194927009](https://github.com/user-attachments/assets/99ae98be-0704-4d76-9d04-7606c18fbb4c)
+
 
 
 
